@@ -2,7 +2,7 @@
 
 Last updated: June 2026
 
-These Terms of Use ("Terms") are a binding agreement between you and [YOUR LEGAL NAME OR COMPANY] ("VyraAI," "we," "us," or "our"). Please read them carefully.
+These Terms of Use ("Terms") are a binding agreement between you and VyraAI. Please read them carefully.
 
 ---
 
